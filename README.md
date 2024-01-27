@@ -1,1 +1,1 @@
-# Historic buildings maps of Shanxi, China
+# Historic building maps of Shanxi, China
